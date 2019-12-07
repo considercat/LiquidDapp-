@@ -1,0 +1,2 @@
+# LiquidDapp-
+I have just completed the LiquidApps Liquid Learning Program! I gained tools and knowledge, became an active member of the DAPP Network, and learned just how essential DAPP Network services are to blockchain scalability and mass-adoption. Now you have a chance to go on this journey, and even earn free DAPP tokens along the way https://liquidapps.education/?affiliate=dapp13192 and get started! For more information, check out https://medium.com/the-liquidapps-blog/the-future-is-multi-blockchain-with-liquidlink-eth-eos-btc-6c7cbaf4216f
